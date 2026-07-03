@@ -1,4 +1,4 @@
-#  
+#  jump to steal lucky blocks Scripts advanced offers the most advanced jump to steal lucky blocks Script, with instant win and aimbot. Perfect for
 
 
 
